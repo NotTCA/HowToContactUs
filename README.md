@@ -8,6 +8,4 @@
 
 > Email: [realtcatech@gmail.com](mailto:realtcatech@gmail.com) or [officiallyyellowed@gmail.com](mailto:officiallyyellowed@gmail.com)
 
-> The TCA's Yellowed City Discord server: https://dsc.gg/yellowed
-
-> or through osu!: imTCA (Yellowed doesn't have osu! lol)
+> or The TCA's Yellowed City Discord server: https://dsc.gg/yellowed
